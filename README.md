@@ -1,0 +1,2 @@
+# VPS-CS-1.6-PROJETO-CS-DR-Serves-
+Eii Não deixe esta comunudade Morrer"! Convido vcs nesde projeto maravilhoso, A. Com uma VPS PUBLICA PARA CS 1.6 Seria Muito legal por tando, so PRESISAMOS de apoiadores , TMB . CM ESSA VPS poderíamos 'criar , serves dedicados Para nos , E um sonho  'Prq se não dizemos por a COMUNIDADE: Qm faria por nos ,? Humm parece que  temos vc para esta conquista [CS DR,SERVES]
